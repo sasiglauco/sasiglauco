@@ -31,7 +31,7 @@ You can click the Preview link to take a look at your changes.
 ### About me:
 - 😄 Fun fact: **I like play socccer, and like play the guitar**
 - 🔭 **I look to collaborate on social and community projects**
-- 📫 How to reach me **glaucopv@gmail.com**
+- 📫 How to reach me **glauco.pacheco@sasi.com.br**
 - 💬 **Ask me about everything**
   
 ##
